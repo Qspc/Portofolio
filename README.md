@@ -1,2 +1,3 @@
-#Curriculum Vitae
+# Curriculum Vitae
+</br>
 info lebih lanjut cek : 
