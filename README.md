@@ -1,3 +1,3 @@
 # Curriculum Vitae
 </br>
-info lebih lanjut cek : 
+info lebih lanjut cek di : 
