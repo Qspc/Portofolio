@@ -4,4 +4,4 @@
 </br>
 
 
-info lebih lanjut cek di : 
+gambaran cv bisa di cek di :
